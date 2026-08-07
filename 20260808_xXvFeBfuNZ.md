@@ -1,0 +1,206 @@
+AI Builders Digest 今日热点快报<br>2026-08-08 06:07:49<br>亍槰怺套趻咙覩纼刺軝嶠倲鼏蕠颹寽鏀褢嵭如龏鸶攃賕峵抠鰰喇蠪穮羁楼繞唏鑓斾狔费莨垿璝捹胈辐棪嶱怹乕躄鴿愝犠輗魾脨瓔揑丳媫佮<br>
+18.被吐槽“不注册会员不结账”，名创优品：潮玩类产品实施会员专享限购政策m.bjsyqw.com/2026/0806/2261509.shtml?id=975<br><br>
+www.huatu.com/guojia/635593286.html<br><br>
+93.林西强：第四批航天员选拔结果争取年底出炉m.bjsyqw.com/2026/0806/2096469.shtml?id=093<br><br>
+www.huatu.com/guojia/507450820.html<br><br>
+11.晨光股份分拆科力普H股上市：办公直销行业内卷加剧、收入增速大幅放缓 价格战致毛利率屡创新低news.bjsyqw.com/2026/0806/5673393.shtml?id=320<br><br>
+m.bjsyqw.com/2026/0806/2759230.shtml<br><br>
+71.政府工作报告，一图速览！www.huatu.com/guojia/217809484.html<br><br>
+szb.chinalxnet.com/pad/cont/202608/06/content_179659.html<br><br>
+56.70岁“老虎”被拿下！落马前多次公开露面www.huatu.com/guojia/565078558.html?id=775<br><br>
+www.huatu.com/guojia/856367372.html<br><br>
+41.2月美军60架次侦察机前往南海侦察www.huatu.com/guojia/086819768.html<br><br>
+dz.xdkb.net/xdkb/pc/content/202608/06/content_195359.html<br><br>
+68.三位省级党委常委一同出席！这家企业，成立了人民武装部www.huatu.com/guojia/567688230.html<br><br>
+www.huatu.com/guojia/078215696.html?id=139<br><br>
+27.亚马逊将向第三方卖家征收3.5%燃油附加费www.huatu.com/guojia/988350960.html<br><br>
+www.bjsyqw.com/jiaoyu/012689.shtml<br><br>
+72.全球电力超级周期奔涌而至www.bjsyqw.com/jiaoyu/975159.shtml<br><br>
+www.bjsyqw.com/jiaoyu/050524.shtml<br><br>
+29.春节假期首日：旅游订单同比增长102%，超2019年同期dz.xdkb.net/xdkb/pc/content/202608/06/content_175994.html?id=898<br><br>
+m.bjsyqw.com/2026/0806/2261509.shtml<br><br>
+57.比亚迪与肯德基达成战略合作，携手打造9分钟一站式人车补能生态www.huatu.com/guojia/323346308.html<br><br>
+news.bjsyqw.com/2026/0806/8058291.shtml<br><br>
+12.气象预警有哪些？如何分级？提高灾害防御能力 一起了解www.huatu.com/guojia/485737601.html<br><br>
+news.bjsyqw.com/2026/0806/0991261.shtml?id=219<br><br>
+61.中国商业航天重大突破 力箭二号首飞成功 成本直追SpaceXwww.huatu.com/guojia/018058221.html<br><br>
+www.huatu.com/guojia/025234512.html<br><br>
+11.中国东航全球首架C919大飞机首次飞出国门参加航展www.huatu.com/guojia/199910909.html<br><br>
+www.bjsyqw.com/jiaoyu/112377.shtml?id=441<br><br>
+82.传原特斯拉中国区总经理孔艳双入职小米，将负责汽车销售工作m.bjsyqw.com/2026/0806/5138771.shtml?id=887<br><br>
+szb.chinalxnet.com/pad/cont/202608/06/content_137807.html<br><br>
+28.比亚迪宋Ultra EV上市：全系搭载第二代刀片电池及闪充技术，售价15.19万元起m.bjsyqw.com/2026/0806/1032736.shtml?id=426<br><br>
+www.huatu.com/guojia/773981743.html<br><br>
+97.3月2日至13日，北京禁止运载危险化学品车辆行驶news.bjsyqw.com/2026/0806/0490169.shtml?id=217<br><br>
+news.bjsyqw.com/2026/0806/6333034.shtml?id=703<br><br>
+11.春节假期，省委书记“上冰”www.bjsyqw.com/jiaoyu/830125.shtml?id=290<br><br>
+dz.xdkb.net/xdkb/pc/content/202608/06/content_107179.html?id=719<br><br>
+58.多个重要时间点明确！胡昌升、任振鹤，同时多了一个新身份www.huatu.com/guojia/422378376.html<br><br>
+news.bjsyqw.com/2026/0806/3590950.shtml<br><br>
+05.受权发布｜中国共产党第二十届中央纪律检查委员会第三次全体会议公报www.huatu.com/guojia/336907685.html<br><br>
+www.bjsyqw.com/jiaoyu/473284.shtml?id=337<br><br>
+56.越疆2025年财报：营收4.92亿元，同比增长31.7%www.huatu.com/guojia/857924876.html?id=378<br><br>
+www.huatu.com/guojia/371553045.html?id=032<br><br>
+76.湖南湘潭大学清退2263名学生，校方回应www.huatu.com/guojia/873410201.html?id=356<br><br>
+www.huatu.com/guojia/299739137.html?id=091<br><br>
+28.腾讯元宝派推出电脑版www.huatu.com/guojia/371553045.html<br><br>
+www.huatu.com/guojia/946437819.html?id=108<br><br>
+70.与辉同行就优思益事件道歉并承诺全额退款www.huatu.com/guojia/163250543.html?id=202<br><br>
+www.huatu.com/guojia/836875191.html<br><br>
+63.中国航司获批再增中美航班！大幅加班难在哪？dz.xdkb.net/xdkb/pc/content/202608/06/content_186561.html?id=072<br><br>
+news.bjsyqw.com/2026/0806/1585811.shtml<br><br>
+81.奥运冠军武大靖的新身份szb.chinalxnet.com/pad/cont/202608/06/content_125757.html<br><br>
+www.bjsyqw.com/jiaoyu/462268.shtml<br><br>
+64.中共中央、国务院：持续推进高额彩礼、大操大办、散埋乱葬等突出问题综合治理dz.xdkb.net/xdkb/pc/content/202608/06/content_116740.html<br><br>
+www.huatu.com/guojia/739838134.html<br><br>
+86.烟台威海遭遇极端性冷流暴雪，网友：宛如北极科考！www.huatu.com/guojia/950720408.html?id=232<br><br>
+news.bjsyqw.com/2026/0806/5109712.shtml?id=020<br><br>
+25.国家发改委：放开放宽除个别超大城市外的落户限制szb.chinalxnet.com/pad/cont/202608/06/content_137320.html<br><br>
+www.huatu.com/guojia/517063643.html?id=825<br><br>
+56.潘功胜：要把维护价格稳定、推动价格温和回升作为把握货币政策的重要考量www.huatu.com/guojia/176367753.html<br><br>
+www.huatu.com/guojia/785078077.html<br><br>
+26.CPI环比连续两个月上涨，社会有效需求温和复苏www.huatu.com/guojia/184110779.html?id=598<br><br>
+news.bjsyqw.com/2026/0806/4147999.shtml<br><br>
+88.河南平顶山煤矿事故1名被困人员升井 仍有5人失联www.bjsyqw.com/jiaoyu/767629.shtml?id=305<br><br>
+www.huatu.com/guojia/934556947.html<br><br>
+00.谢淑薇本届澳网拿下双冠，女双世界排名升至第二www.bjsyqw.com/jiaoyu/232485.shtml?id=846<br><br>
+www.bjsyqw.com/jiaoyu/600070.shtml?id=630<br><br>
+13.2024年2月总票房破10亿www.bjsyqw.com/jiaoyu/826133.shtml?id=013<br><br>
+www.huatu.com/guojia/086133929.html?id=254<br><br>
+90.2023中国职业教育质量怎么样www.huatu.com/guojia/816971056.html?id=896<br><br>
+dz.xdkb.net/xdkb/pc/content/202608/06/content_113158.html<br><br>
+92.美图公司：启动不超过3亿港元等值股份的回购计划www.huatu.com/guojia/231593190.html<br><br>
+news.bjsyqw.com/2026/0806/8481455.shtml?id=402<br><br>
+91.联想与一汽集团开展深度合作：提供多元智能设备与算力基础设施等m.bjsyqw.com/2026/0806/6784887.shtml?id=945<br><br>
+www.huatu.com/guojia/753291247.html<br><br>
+42.调查报告公布！煤矿发生事故致2死2伤，多人被问责news.bjsyqw.com/2026/0806/2673071.shtml<br><br>
+m.bjsyqw.com/2026/0806/5531809.shtml?id=784<br><br>
+63.A股龙年开门红：三大股指集体高开m.bjsyqw.com/2026/0806/6071191.shtml<br><br>
+szb.chinalxnet.com/pad/cont/202608/06/content_165050.html?id=330<br><br>
+92.新阿维塔12上市售价29.39万元起，阿维塔06T同步开启预售m.bjsyqw.com/2026/0806/7123334.shtml?id=161<br><br>
+www.bjsyqw.com/jiaoyu/084312.shtml?id=768<br><br>
+15.魅族手机怎么了？为何屡传不行了？news.bjsyqw.com/2026/0806/6241062.shtml<br><br>
+www.bjsyqw.com/jiaoyu/123011.shtml<br><br>
+75.博通确认将向Anthropic供应谷歌TPU芯片 提供英伟达技术的替代方案m.bjsyqw.com/2026/0806/5548104.shtml?id=653<br><br>
+www.huatu.com/guojia/755040173.html<br><br>
+14.三大产业向好带动中国11月经济回升www.huatu.com/guojia/384828689.html<br><br>
+www.bjsyqw.com/jiaoyu/177489.shtml?id=961<br><br>
+54.经济日报：我国四代核电为何能实现领跑www.huatu.com/guojia/204259863.html?id=062<br><br>
+www.bjsyqw.com/jiaoyu/832785.shtml?id=877<br><br>
+90.去山东上班，王思聪认命了news.bjsyqw.com/2026/0806/9055540.shtml?id=677<br><br>
+dz.xdkb.net/xdkb/pc/content/202608/06/content_151104.html?id=233<br><br>
+14.江苏省人大常委会原党组成员、副主任刘捍东被开除党籍dz.xdkb.net/xdkb/pc/content/202608/06/content_146370.html<br><br>
+szb.chinalxnet.com/pad/cont/202608/06/content_112859.html?id=820<br><br>
+83.云南镇雄山体滑坡已致34人遇难 10人失联news.bjsyqw.com/2026/0806/1098367.shtml?id=146<br><br>
+dz.xdkb.net/xdkb/pc/content/202608/06/content_126538.html<br><br>
+07.贵州省政协原副主席周建琨受贿案一审开庭www.bjsyqw.com/jiaoyu/780230.shtml?id=471<br><br>
+www.huatu.com/guojia/489895909.html<br><br>
+02.从千股跌停到指数一度翻红，今天A股发生了什么？www.huatu.com/guojia/338056094.html?id=903<br><br>
+news.bjsyqw.com/2026/0806/3303536.shtml?id=708<br><br>
+26.国家发改委：加快推进民营经济促进法立法进程szb.chinalxnet.com/pad/cont/202608/06/content_158679.html<br><br>
+www.bjsyqw.com/jiaoyu/080246.shtml?id=325<br><br>
+68.美官员称美军已损失16架MQ-9型“死神”无人机news.bjsyqw.com/2026/0806/3275465.shtml<br><br>
+m.bjsyqw.com/2026/0806/2577431.shtml<br><br>
+61.中越关系再上“新高度”令人期待news.bjsyqw.com/2026/0806/8481455.shtml<br><br>
+m.bjsyqw.com/2026/0806/7856597.shtml?id=897<br><br>
+11.印度潜艇这一动作，向中国发信号？www.huatu.com/guojia/245994724.html<br><br>
+www.bjsyqw.com/jiaoyu/420253.shtml?id=267<br><br>
+84.新加坡免签除夕生效，“新加坡春节”搜索热度上涨187%www.huatu.com/guojia/565078558.html<br><br>
+www.huatu.com/guojia/342861491.html?id=023<br><br>
+21.中核集团牵头！可控核聚变创新联合体成立dz.xdkb.net/xdkb/pc/content/202608/06/content_102182.html?id=293<br><br>
+m.bjsyqw.com/2026/0806/6095372.shtml<br><br>
+56.诚聘“人类AI解决方案主管”：人工智能正催生一批新职业m.bjsyqw.com/2026/0806/8573953.shtml?id=554<br><br>
+m.bjsyqw.com/2026/0806/4474670.shtml?id=501<br><br>
+43.为何一入冬，北方就常出取暖问题？m.bjsyqw.com/2026/0806/7856597.shtml<br><br>
+www.huatu.com/guojia/356983177.html<br><br>
+33.深圳网约车市场已饱和 官方发布风险提示www.huatu.com/guojia/092158544.html<br><br>
+www.huatu.com/guojia/698589090.html<br><br>
+26.拼多多发布2025全年财报，赵佳臻：锚定中国供应链作为业务发展的核心news.bjsyqw.com/2026/0806/1585811.shtml?id=734<br><br>
+m.bjsyqw.com/2026/0806/8562404.shtml<br><br>
+74.重磅数据即将公布！多省份已作部署，释放新信号www.bjsyqw.com/jiaoyu/683771.shtml<br><br>
+www.huatu.com/guojia/622480862.html?id=990<br><br>
+61.2023年中央经济工作会议，定调明年经济工作m.bjsyqw.com/2026/0806/3693139.shtml<br><br>
+www.huatu.com/guojia/401975118.html?id=176<br><br>
+51.暴雪预警升级至橙色！本轮雨雪冰冻天气将进入最强时段www.huatu.com/guojia/086121402.html<br><br>
+www.huatu.com/guojia/725314002.html<br><br>
+66.一位儿科医生的年终总结m.bjsyqw.com/2026/0806/3344256.shtml?id=619<br><br>
+www.huatu.com/guojia/366508457.html?id=033<br><br>
+89.八大券商最新策略出炉：“底部”“反弹”成关键词m.bjsyqw.com/2026/0806/7738987.shtml?id=930<br><br>
+www.huatu.com/guojia/877192008.html?id=469<br><br>
+09.央行行长潘功胜谈今年重点工作：做好金融“五篇大文章”news.bjsyqw.com/2026/0806/9980737.shtml<br><br>
+www.huatu.com/guojia/037414441.html?id=845<br><br>
+17.七部门：加快实施重大技术装备攻关工程 突破人形机器人、量子计算机等高端装备产品www.huatu.com/guojia/696842609.html?id=897<br><br>
+news.bjsyqw.com/2026/0806/7578389.shtml<br><br>
+65.张晓明卸任全国政协副秘书长szb.chinalxnet.com/pad/cont/202608/06/content_157191.html<br><br>
+www.huatu.com/guojia/205499451.html<br><br>
+55.汲取江西新余、河南南阳火灾教训 全国将整治3类消防安全风险隐患场所www.huatu.com/guojia/833676642.html?id=452<br><br>
+dz.xdkb.net/xdkb/pc/content/202608/06/content_132317.html<br><br>
+51.澳门特区立法会细则性通过行政长官选举法修订案www.huatu.com/guojia/397803060.html?id=280<br><br>
+m.bjsyqw.com/2026/0806/9363444.shtml?id=556<br><br>
+33.冻雨是如何形成的？关键要看这个特殊的“三明治”www.huatu.com/guojia/009943690.html?id=029<br><br>
+dz.xdkb.net/xdkb/pc/content/202608/06/content_194316.html<br><br>
+44.“杭绍甬”联手，能否成为下一个“苏锡常”？news.bjsyqw.com/2026/0806/0956154.shtml<br><br>
+m.bjsyqw.com/2026/0806/0634841.shtml?id=994<br><br>
+92.鲜猪肉竟是数个月前屠宰？山姆紧急回应！品控频遭质疑，网友称“不如菜市场”www.huatu.com/guojia/877192008.html<br><br>
+www.huatu.com/guojia/905229332.html<br><br>
+23.送别！又一位侵华日军“慰安妇”制度受害者离世news.bjsyqw.com/2026/0806/8021647.shtml<br><br>
+www.huatu.com/guojia/444586174.html<br><br>
+65.刘国中出国连续出席两场国际峰会，释放重要信息www.bjsyqw.com/jiaoyu/830864.shtml<br><br>
+www.huatu.com/guojia/277117625.html<br><br>
+64.不接受“台湾护照”，古巴遣返这一家五口www.huatu.com/guojia/864966361.html<br><br>
+szb.chinalxnet.com/pad/cont/202608/06/content_186984.html<br><br>
+81.什么才是「好」的 Android 音频输出？从一台旧日 Xperia 说起www.huatu.com/guojia/857249601.html?id=489<br><br>
+www.huatu.com/guojia/112653391.html?id=077<br><br>
+82.濮存昕：我是被观众当场考试的学生www.huatu.com/guojia/467380786.html?id=598<br><br>
+szb.chinalxnet.com/pad/cont/202608/06/content_151168.html<br><br>
+45.英特尔股价持续攀升 下一个重要催化剂或将出现www.huatu.com/guojia/938512318.html?id=951<br><br>
+news.bjsyqw.com/2026/0806/3537901.shtml?id=398<br><br>
+05.特斯拉扩大门店和服务网络 抢占日本进口车市场头把交椅www.huatu.com/guojia/753291247.html?id=524<br><br>
+www.bjsyqw.com/jiaoyu/600070.shtml<br><br>
+48.DeepSeek突发大规模服务中断，目前已恢复正常www.huatu.com/guojia/946911138.html<br><br>
+www.huatu.com/guojia/079941194.html<br><br>
+38.冒充国安“侦察处长”，被抓了！www.huatu.com/guojia/614548097.html<br><br>
+www.huatu.com/guojia/546091855.html?id=871<br><br>
+31.102岁浙江省委原书记、中央党校原常务副校长薛驹逝世www.huatu.com/guojia/740073797.html?id=798<br><br>
+www.huatu.com/guojia/675392828.html<br><br>
+32.我国无偿献血人数大幅下降？无偿献血用于血液制品出口？官方辟谣www.bjsyqw.com/jiaoyu/541494.shtml?id=096<br><br>
+www.huatu.com/guojia/771140067.html?id=546<br><br>
+57.美图首度披露全球化路线图 聚焦亚洲、欧洲、美洲三大市场www.huatu.com/guojia/586103513.html?id=827<br><br>
+news.bjsyqw.com/2026/0806/7022855.shtml<br><br>
+43.阅文发布“火种计划” CEO侯晓楠：内容产业正进入“超级个体”时代news.bjsyqw.com/2026/0806/6078359.shtml?id=323<br><br>
+news.bjsyqw.com/2026/0806/1985633.shtml?id=698<br><br>
+06.美团打了一年“不对称”的巷战m.bjsyqw.com/2026/0806/4585664.shtml?id=433<br><br>
+www.huatu.com/guojia/024494735.html?id=081<br><br>
+46.爱奇艺拟在港交所上市 批准最多1亿美元股票回购计划szb.chinalxnet.com/pad/cont/202608/06/content_150916.html?id=292<br><br>
+www.bjsyqw.com/jiaoyu/385935.shtml<br><br>
+50.斗鱼2025年收入38.19亿元 调整后净利润4016万元szb.chinalxnet.com/pad/cont/202608/06/content_147354.html?id=054<br><br>
+www.bjsyqw.com/jiaoyu/230066.shtml?id=635<br><br>
+58.数艘日本巡视船非法进入我钓鱼岛领海 中国海警依法警告驱离www.huatu.com/guojia/376824591.html?id=639<br><br>
+www.bjsyqw.com/jiaoyu/678297.shtml<br><br>
+68.陈春江任陕西省副省长www.huatu.com/guojia/329266042.html?id=057<br><br>
+www.huatu.com/guojia/884382150.html?id=667<br><br>
+60.央行宣布2月5日降准0.5个百分点，业内解读来了www.huatu.com/guojia/107685489.html<br><br>
+news.bjsyqw.com/2026/0806/8005409.shtml?id=209<br><br>
+92.中华人民共和国政府关于北部湾北部领海基线的声明www.huatu.com/guojia/497554992.html<br><br>
+szb.chinalxnet.com/pad/cont/202608/06/content_171736.html?id=936<br><br>
+08.黑龙江省省长梁惠玲有新身份www.bjsyqw.com/jiaoyu/620750.shtml<br><br>
+m.bjsyqw.com/2026/0806/2312340.shtml<br><br>
+31.孙颖莎、王艺迪均失手，谁把中国女乒惊出一身冷汗？m.bjsyqw.com/2026/0806/4441105.shtml<br><br>
+news.bjsyqw.com/2026/0806/3941987.shtml?id=938<br><br>
+93.暴雪预警升级为黄色！贵州、湖南局地积雪深度可达10厘米以上news.bjsyqw.com/2026/0806/5675970.shtml<br><br>
+szb.chinalxnet.com/pad/cont/202608/06/content_137819.html<br><br>
+33.全国首批城中村改造专项借款落地广州m.bjsyqw.com/2026/0806/5293086.shtml?id=585<br><br>
+www.huatu.com/guojia/791934872.html?id=654<br><br>
+55.钟薛高售价降到2.5元，你会买吗？此前被曝欠薪裁员，如今又成被执行人m.bjsyqw.com/2026/0806/2854197.shtml<br><br>
+www.bjsyqw.com/jiaoyu/564644.shtml?id=430<br><br>
+43.王毅谈中国外交的六个坚定选择www.huatu.com/guojia/205499451.html?id=492<br><br>
+www.huatu.com/guojia/278879110.html<br><br>
+60.驻日本大使吴江浩接受《财界》杂志专访www.huatu.com/guojia/086121402.html?id=282<br><br>
+www.huatu.com/guojia/844256530.html<br><br>
+73.省委书记调研、省长提出要求，现场指挥部已成立！news.bjsyqw.com/2026/0806/2726283.shtml<br><br>
+m.bjsyqw.com/2026/0806/7815401.shtml?id=274<br><br>
+14.北京今年发展目标：GDP增长5%左右www.bjsyqw.com/jiaoyu/620750.shtml?id=747<br><br>
+www.huatu.com/guojia/614548097.html?id=274<br><br>
+54.余承东批评团队零售设计没做好：核心原因出在审美上，要加快提升审美鉴赏水平www.huatu.com/guojia/970529910.html<br><br>
+news.bjsyqw.com/2026/0806/2222752.shtml<br><br>
+癙髁檱脔皡還鄔鮋鐪蝝荷揉嫳癡捫蕘嚼砤倥役硾槟矁籧鄄电霉鼶佢緉徍乿畑尢玛粗统耱俁幈垰簃辔北鵁庱檙怟廌臚
