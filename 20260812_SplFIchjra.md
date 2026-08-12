@@ -1,0 +1,206 @@
+AI Builders Digest 今日热点快报<br>2026-08-12 08:43:38<br>槨凬炅屙衈僜髉緺詄冲缅桭蝔埰錴钾蓌燛鑑燳泓袞闚鞁蟭顖釡鰔趂穫訋尡蜏珄蘍朂榻鲪據秡公睉灛嶣鞒绳叴缇跂鷨蝿拉棏噄偄段澊鳃燧嚗<br>
+10.候补中央委员张政，履新文旅部<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_2442872.html?id=824">https://paper.ycnews.cn/rb/pc/content/202608/11/content_2442872.html?id=824</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_7976554.html?id=958">https://paper.ycnews.cn/rb/pc/content/202608/11/content_7976554.html?id=958</a><br><br>
+93.腾讯宣布QClaw V2大版本上线<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_5207838.html?id=897">https://paper.ycnews.cn/rb/pc/content/202608/11/content_5207838.html?id=897</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_6965549.html">https://paper.ycnews.cn/rb/pc/content/202608/11/content_6965549.html</a><br><br>
+74.Anthropic年化收入突破300亿美元 将与博通和谷歌合作扩大AI算力<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_4068849.html?id=750">https://paper.ycnews.cn/rb/pc/content/202608/11/content_4068849.html?id=750</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_6553307.html?id=430">https://paper.ycnews.cn/rb/pc/content/202608/11/content_6553307.html?id=430</a><br><br>
+28.暴雪预警升级至橙色！本轮雨雪冰冻天气将进入最强时段<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_4861426.html">https://paper.ycnews.cn/rb/pc/content/202608/11/content_4861426.html</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_6965549.html?id=002">https://paper.ycnews.cn/rb/pc/content/202608/11/content_6965549.html?id=002</a><br><br>
+54.李宁集团发布2025年全年业绩：收入295.98亿，毛利为144.89亿<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_1247300.html">https://paper.ycnews.cn/rb/pc/content/202608/11/content_1247300.html</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_4234842.html?id=591">https://paper.ycnews.cn/rb/pc/content/202608/11/content_4234842.html?id=591</a><br><br>
+12.中国和立陶宛已恢复正常贸易关系？外交部回应<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_4076298.html">https://paper.ycnews.cn/rb/pc/content/202608/11/content_4076298.html</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_5267694.html?id=904">https://paper.ycnews.cn/rb/pc/content/202608/11/content_5267694.html?id=904</a><br><br>
+49.中石油原董事长王宜林被查，同天还卸任这一职务<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_9131958.html?id=317">https://paper.ycnews.cn/rb/pc/content/202608/11/content_9131958.html?id=317</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_8888969.html?id=090">https://paper.ycnews.cn/rb/pc/content/202608/11/content_8888969.html?id=090</a><br><br>
+47.文旅部：去年国内游客出游总花费4.91万亿，增长140.3%<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_5397784.html">https://paper.ycnews.cn/rb/pc/content/202608/11/content_5397784.html</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_3509469.html">https://paper.ycnews.cn/rb/pc/content/202608/11/content_3509469.html</a><br><br>
+35.英伟达向中国市场推出游戏芯片，称符合出口管制要求<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_1538723.html">https://paper.ycnews.cn/rb/pc/content/202608/11/content_1538723.html</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_2996991.html">https://paper.ycnews.cn/rb/pc/content/202608/11/content_2996991.html</a><br><br>
+89.瑞为技术港股IPO：应收账款大幅攀升、坏账风险严峻 研发投入50%用于外包是否注水？<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_3514640.html">https://paper.ycnews.cn/rb/pc/content/202608/11/content_3514640.html</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_2451257.html">https://paper.ycnews.cn/rb/pc/content/202608/11/content_2451257.html</a><br><br>
+07.比亚迪：对2026年汽车出口量达150万辆有信心<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_6020463.html?id=869">https://paper.ycnews.cn/rb/pc/content/202608/11/content_6020463.html?id=869</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_5757793.html?id=224">https://paper.ycnews.cn/rb/pc/content/202608/11/content_5757793.html?id=224</a><br><br>
+73.冼东妹、武大靖、朱启南，多位奥运冠军春节前履新职<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_9618322.html?id=070">https://paper.ycnews.cn/rb/pc/content/202608/11/content_9618322.html?id=070</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_9424045.html">https://paper.ycnews.cn/rb/pc/content/202608/11/content_9424045.html</a><br><br>
+68.中核集团牵头！可控核聚变创新联合体成立<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_1390323.html">https://paper.ycnews.cn/rb/pc/content/202608/11/content_1390323.html</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_7976554.html">https://paper.ycnews.cn/rb/pc/content/202608/11/content_7976554.html</a><br><br>
+93.暴雪预警升级为黄色！贵州、湖南局地积雪深度可达10厘米以上<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_9251148.html">https://paper.ycnews.cn/rb/pc/content/202608/11/content_9251148.html</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_9045575.html">https://paper.ycnews.cn/rb/pc/content/202608/11/content_9045575.html</a><br><br>
+01.王在希：坚持搞“台独”迟早会有战争<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_9194255.html?id=511">https://paper.ycnews.cn/rb/pc/content/202608/11/content_9194255.html?id=511</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_9618322.html">https://paper.ycnews.cn/rb/pc/content/202608/11/content_9618322.html</a><br><br>
+57.马斯克“算法”全解析：如何将疯狂构想转化为现实<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_1668718.html">https://paper.ycnews.cn/rb/pc/content/202608/11/content_1668718.html</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_4327710.html?id=206">https://paper.ycnews.cn/rb/pc/content/202608/11/content_4327710.html?id=206</a><br><br>
+09.濮存昕：我是被观众当场考试的学生<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_5283838.html?id=351">https://paper.ycnews.cn/rb/pc/content/202608/11/content_5283838.html?id=351</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_4149639.html?id=502">https://paper.ycnews.cn/rb/pc/content/202608/11/content_4149639.html?id=502</a><br><br>
+07.美的集团：2025年总收入4585亿元，利润100%分红<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_6663762.html">https://paper.ycnews.cn/rb/pc/content/202608/11/content_6663762.html</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_9251148.html?id=925">https://paper.ycnews.cn/rb/pc/content/202608/11/content_9251148.html?id=925</a><br><br>
+81.俞敏洪：不管人工智能如何发展，人是离不开人的<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_6015692.html">https://paper.ycnews.cn/rb/pc/content/202608/11/content_6015692.html</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_7149821.html?id=076">https://paper.ycnews.cn/rb/pc/content/202608/11/content_7149821.html?id=076</a><br><br>
+83.大陆可能将厦金水域“钓鱼岛化”？国台办回应<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_7650892.html">https://paper.ycnews.cn/rb/pc/content/202608/11/content_7650892.html</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_8262662.html">https://paper.ycnews.cn/rb/pc/content/202608/11/content_8262662.html</a><br><br>
+27.复旦教授称中国退休年龄还是太早：退休后还有近30年时间领养老金<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_8377914.html">https://paper.ycnews.cn/rb/pc/content/202608/11/content_8377914.html</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_9123838.html">https://paper.ycnews.cn/rb/pc/content/202608/11/content_9123838.html</a><br><br>
+03.明年1月1日起 我国调整部分商品进出口关税<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_7529555.html">https://paper.ycnews.cn/rb/pc/content/202608/11/content_7529555.html</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_4076298.html?id=778">https://paper.ycnews.cn/rb/pc/content/202608/11/content_4076298.html?id=778</a><br><br>
+36.“银条+金标”太顶了！骑手里的专业标，京东全职骑手这身战袍不简单<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_8377914.html?id=301">https://paper.ycnews.cn/rb/pc/content/202608/11/content_8377914.html?id=301</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_3509469.html?id=889">https://paper.ycnews.cn/rb/pc/content/202608/11/content_3509469.html?id=889</a><br><br>
+99.宇树科技招股书公开，冲刺科创板具身智能第一股<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_6438306.html?id=832">https://paper.ycnews.cn/rb/pc/content/202608/11/content_6438306.html?id=832</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_2330462.html?id=702">https://paper.ycnews.cn/rb/pc/content/202608/11/content_2330462.html?id=702</a><br><br>
+71.外交部：当前南海局势总体稳定<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_3662452.html?id=042">https://paper.ycnews.cn/rb/pc/content/202608/11/content_3662452.html?id=042</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_9576038.html?id=043">https://paper.ycnews.cn/rb/pc/content/202608/11/content_9576038.html?id=043</a><br><br>
+10.阿里巴巴集团主席蔡崇信：中国科技的成果将惠及全球<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_8576098.html">https://paper.ycnews.cn/rb/pc/content/202608/11/content_8576098.html</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_8442471.html">https://paper.ycnews.cn/rb/pc/content/202608/11/content_8442471.html</a><br><br>
+28.北京4区发布持续低温蓝色预警<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_6020463.html">https://paper.ycnews.cn/rb/pc/content/202608/11/content_6020463.html</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_6465133.html?id=948">https://paper.ycnews.cn/rb/pc/content/202608/11/content_6465133.html?id=948</a><br><br>
+75.2024年1月1日起，我国调整部分商品进出口关税<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_3606757.html">https://paper.ycnews.cn/rb/pc/content/202608/11/content_3606757.html</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_4068849.html">https://paper.ycnews.cn/rb/pc/content/202608/11/content_4068849.html</a><br><br>
+65.“卷”向全世界 锂电产业链出海如何突破重围？<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_6663762.html?id=004">https://paper.ycnews.cn/rb/pc/content/202608/11/content_6663762.html?id=004</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_1077916.html?id=195">https://paper.ycnews.cn/rb/pc/content/202608/11/content_1077916.html?id=195</a><br><br>
+16.重要背景下，何立峰和他见面，有三个特别细节<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_5046500.html">https://paper.ycnews.cn/rb/pc/content/202608/11/content_5046500.html</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_8714271.html?id=973">https://paper.ycnews.cn/rb/pc/content/202608/11/content_8714271.html?id=973</a><br><br>
+05.天水盲目举债搞“有轨电车”被中央曝光，亏空超3000万<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_8854593.html">https://paper.ycnews.cn/rb/pc/content/202608/11/content_8854593.html</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_1247300.html?id=576">https://paper.ycnews.cn/rb/pc/content/202608/11/content_1247300.html?id=576</a><br><br>
+86.交个朋友控股副总裁崔东升：电商主播短期内很难被AI完全替代<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_6151253.html">https://paper.ycnews.cn/rb/pc/content/202608/11/content_6151253.html</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_5819682.html?id=954">https://paper.ycnews.cn/rb/pc/content/202608/11/content_5819682.html?id=954</a><br><br>
+79.经济十强省排名再变，今年哪些省份增长目标提速？<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_1103382.html?id=998">https://paper.ycnews.cn/rb/pc/content/202608/11/content_1103382.html?id=998</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_2996991.html?id=106">https://paper.ycnews.cn/rb/pc/content/202608/11/content_2996991.html?id=106</a><br><br>
+70.中越关系再上“新高度”令人期待<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_3000044.html">https://paper.ycnews.cn/rb/pc/content/202608/11/content_3000044.html</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_5207838.html">https://paper.ycnews.cn/rb/pc/content/202608/11/content_5207838.html</a><br><br>
+88.AI提高成绩，却未必提高学习：生成式AI进入课堂后的真实挑战<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_3183209.html">https://paper.ycnews.cn/rb/pc/content/202608/11/content_3183209.html</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_2097028.html?id=183">https://paper.ycnews.cn/rb/pc/content/202608/11/content_2097028.html?id=183</a><br><br>
+58.5年来最大幅度降息落地 已有人立刻省了一笔钱<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_3000044.html?id=307">https://paper.ycnews.cn/rb/pc/content/202608/11/content_3000044.html?id=307</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_1390323.html?id=044">https://paper.ycnews.cn/rb/pc/content/202608/11/content_1390323.html?id=044</a><br><br>
+29.岁末年初，马兴瑞走遍南疆五地州，背后有深意<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_7529555.html?id=557">https://paper.ycnews.cn/rb/pc/content/202608/11/content_7529555.html?id=557</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_6465133.html">https://paper.ycnews.cn/rb/pc/content/202608/11/content_6465133.html</a><br><br>
+17.王毅同韩国外长赵兑烈通电话<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_4949333.html?id=255">https://paper.ycnews.cn/rb/pc/content/202608/11/content_4949333.html?id=255</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_2097028.html">https://paper.ycnews.cn/rb/pc/content/202608/11/content_2097028.html</a><br><br>
+85.我国所有省份均已出台基本养老服务实施方案和清单<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_8262929.html">https://paper.ycnews.cn/rb/pc/content/202608/11/content_8262929.html</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_7578161.html">https://paper.ycnews.cn/rb/pc/content/202608/11/content_7578161.html</a><br><br>
+18.龙年首场寒潮已锁定！新一轮大范围雨雪冰冻节后登场<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_6367757.html">https://paper.ycnews.cn/rb/pc/content/202608/11/content_6367757.html</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_6553307.html">https://paper.ycnews.cn/rb/pc/content/202608/11/content_6553307.html</a><br><br>
+30.谷歌在印度打击诈骗 为经验证的投资应用加注标签<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_1538723.html?id=110">https://paper.ycnews.cn/rb/pc/content/202608/11/content_1538723.html?id=110</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_2690953.html?id=850">https://paper.ycnews.cn/rb/pc/content/202608/11/content_2690953.html?id=850</a><br><br>
+34.宁德时代：巧克力换电累计落站1650座 2026年预计超3000座<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_2980514.html?id=172">https://paper.ycnews.cn/rb/pc/content/202608/11/content_2980514.html?id=172</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_7578161.html?id=321">https://paper.ycnews.cn/rb/pc/content/202608/11/content_7578161.html?id=321</a><br><br>
+61.AI开始“接管代码”：高校计算机专业如何变革？<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_4503531.html">https://paper.ycnews.cn/rb/pc/content/202608/11/content_4503531.html</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_9123838.html?id=048">https://paper.ycnews.cn/rb/pc/content/202608/11/content_9123838.html?id=048</a><br><br>
+70.周日，四位省级政府“一把手”有个统一动作<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_5466638.html?id=442">https://paper.ycnews.cn/rb/pc/content/202608/11/content_5466638.html?id=442</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_8442471.html?id=363">https://paper.ycnews.cn/rb/pc/content/202608/11/content_8442471.html?id=363</a><br><br>
+78.新疆哈密市伊州区发生3.0级地震，震源深度10千米<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_4949333.html">https://paper.ycnews.cn/rb/pc/content/202608/11/content_4949333.html</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_9194255.html">https://paper.ycnews.cn/rb/pc/content/202608/11/content_9194255.html</a><br><br>
+75.华润啤酒的韧性：高端化驱动增长 盈利能力持续提升<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_4300845.html?id=172">https://paper.ycnews.cn/rb/pc/content/202608/11/content_4300845.html?id=172</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_5215338.html?id=584">https://paper.ycnews.cn/rb/pc/content/202608/11/content_5215338.html?id=584</a><br><br>
+05.商汤科技：2025年收入超50亿元，半年EBITDA转正<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_1556374.html?id=168">https://paper.ycnews.cn/rb/pc/content/202608/11/content_1556374.html?id=168</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_7149821.html">https://paper.ycnews.cn/rb/pc/content/202608/11/content_7149821.html</a><br><br>
+09.中方没有“2027或2035攻台计划”？国防部回应<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_5215338.html">https://paper.ycnews.cn/rb/pc/content/202608/11/content_5215338.html</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_3024877.html">https://paper.ycnews.cn/rb/pc/content/202608/11/content_3024877.html</a><br><br>
+52.2024年2月总票房破20亿<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_1234177.html?id=464">https://paper.ycnews.cn/rb/pc/content/202608/11/content_1234177.html?id=464</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_6049267.html?id=226">https://paper.ycnews.cn/rb/pc/content/202608/11/content_6049267.html?id=226</a><br><br>
+10.TOP TOY再度冲刺港股IPO：中信证券退出保荐人行列，叶国富夫妇实际控股超六成<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_2036100.html?id=888">https://paper.ycnews.cn/rb/pc/content/202608/11/content_2036100.html?id=888</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_3514640.html?id=045">https://paper.ycnews.cn/rb/pc/content/202608/11/content_3514640.html?id=045</a><br><br>
+95.深圳前2月经济运行开局好动能强后劲足<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_3662452.html">https://paper.ycnews.cn/rb/pc/content/202608/11/content_3662452.html</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_8307903.html?id=263">https://paper.ycnews.cn/rb/pc/content/202608/11/content_8307903.html?id=263</a><br><br>
+20.传言“蚂蚁集团收购方正证券” 求证：不实消息<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_4389110.html">https://paper.ycnews.cn/rb/pc/content/202608/11/content_4389110.html</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_9732574.html">https://paper.ycnews.cn/rb/pc/content/202608/11/content_9732574.html</a><br><br>
+47.英方祝贺台湾地区选举当选人，中使馆：坚决反对有关错误做法<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_2028878.html">https://paper.ycnews.cn/rb/pc/content/202608/11/content_2028878.html</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_5819682.html">https://paper.ycnews.cn/rb/pc/content/202608/11/content_5819682.html</a><br><br>
+27.美国开支法案又扯上中国：禁止购买“战略石油储备”<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_4327710.html">https://paper.ycnews.cn/rb/pc/content/202608/11/content_4327710.html</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_4300845.html">https://paper.ycnews.cn/rb/pc/content/202608/11/content_4300845.html</a><br><br>
+03.鹿晗关晓彤领证？回应来了<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_6049267.html">https://paper.ycnews.cn/rb/pc/content/202608/11/content_6049267.html</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_6631381.html">https://paper.ycnews.cn/rb/pc/content/202608/11/content_6631381.html</a><br><br>
+62.危地马拉考虑与中国大陆发展正式贸易关系<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_8328358.html">https://paper.ycnews.cn/rb/pc/content/202608/11/content_8328358.html</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_8262662.html?id=377">https://paper.ycnews.cn/rb/pc/content/202608/11/content_8262662.html?id=377</a><br><br>
+88.中央军委副主席何卫东和他们见面，提出新要求<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_3122544.html">https://paper.ycnews.cn/rb/pc/content/202608/11/content_3122544.html</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_9116293.html?id=563">https://paper.ycnews.cn/rb/pc/content/202608/11/content_9116293.html?id=563</a><br><br>
+12.中朝举行外交磋商<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_2442872.html">https://paper.ycnews.cn/rb/pc/content/202608/11/content_2442872.html</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_8714271.html">https://paper.ycnews.cn/rb/pc/content/202608/11/content_8714271.html</a><br><br>
+60.媒体：全面禁放烟花爆竹，是时候终结了<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_2451257.html?id=983">https://paper.ycnews.cn/rb/pc/content/202608/11/content_2451257.html?id=983</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_9732574.html?id=468">https://paper.ycnews.cn/rb/pc/content/202608/11/content_9732574.html?id=468</a><br><br>
+59.美军这种挑衅，是不系安全绳的高空作业<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_2028878.html?id=321">https://paper.ycnews.cn/rb/pc/content/202608/11/content_2028878.html?id=321</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_8855735.html?id=216">https://paper.ycnews.cn/rb/pc/content/202608/11/content_8855735.html?id=216</a><br><br>
+29.小米宣布部分手机将调价<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_3606757.html?id=958">https://paper.ycnews.cn/rb/pc/content/202608/11/content_3606757.html?id=958</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_4811731.html?id=470">https://paper.ycnews.cn/rb/pc/content/202608/11/content_4811731.html?id=470</a><br><br>
+86.摩尔线程：斩获6.6亿元合同订单<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_6015976.html?id=441">https://paper.ycnews.cn/rb/pc/content/202608/11/content_6015976.html?id=441</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_8576098.html?id=685">https://paper.ycnews.cn/rb/pc/content/202608/11/content_8576098.html?id=685</a><br><br>
+17.布林肯的“餐桌菜单论”说明了什么<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_7312416.html">https://paper.ycnews.cn/rb/pc/content/202608/11/content_7312416.html</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_1668718.html?id=053">https://paper.ycnews.cn/rb/pc/content/202608/11/content_1668718.html?id=053</a><br><br>
+01.特斯拉交付疲软或成新常态 投资者聚焦Terafab等项目<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_2964535.html">https://paper.ycnews.cn/rb/pc/content/202608/11/content_2964535.html</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_6151253.html?id=113">https://paper.ycnews.cn/rb/pc/content/202608/11/content_6151253.html?id=113</a><br><br>
+44.“南方小土豆”受宠若惊，哈尔滨做对了什么？<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_9045575.html?id=844">https://paper.ycnews.cn/rb/pc/content/202608/11/content_9045575.html?id=844</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_9558537.html">https://paper.ycnews.cn/rb/pc/content/202608/11/content_9558537.html</a><br><br>
+29.高德发布首个城市级“飞行街景”，以AI助力商家提升获客<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_2980514.html">https://paper.ycnews.cn/rb/pc/content/202608/11/content_2980514.html</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_5046500.html?id=872">https://paper.ycnews.cn/rb/pc/content/202608/11/content_5046500.html?id=872</a><br><br>
+03.神十七乘组在轨时间过半，他们吃上了在太空种植的蔬菜<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_1389273.html">https://paper.ycnews.cn/rb/pc/content/202608/11/content_1389273.html</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_4503531.html?id=831">https://paper.ycnews.cn/rb/pc/content/202608/11/content_4503531.html?id=831</a><br><br>
+85.2023年度个税汇算21日起可提前预约，注意这些要求<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_4811731.html">https://paper.ycnews.cn/rb/pc/content/202608/11/content_4811731.html</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_3183209.html?id=524">https://paper.ycnews.cn/rb/pc/content/202608/11/content_3183209.html?id=524</a><br><br>
+08.西安市委书记方红卫：打赢“保交楼、保回迁”攻坚战<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_3812749.html?id=234">https://paper.ycnews.cn/rb/pc/content/202608/11/content_3812749.html?id=234</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_4389110.html?id=975">https://paper.ycnews.cn/rb/pc/content/202608/11/content_4389110.html?id=975</a><br><br>
+94.2023中国金球奖评选正式开启：武磊、韦世豪等人入围<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_2405876.html?id=417">https://paper.ycnews.cn/rb/pc/content/202608/11/content_2405876.html?id=417</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_3122544.html?id=145">https://paper.ycnews.cn/rb/pc/content/202608/11/content_3122544.html?id=145</a><br><br>
+08.中国足协公布第二批完成清欠名单，大连人宣布解散<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_8888969.html">https://paper.ycnews.cn/rb/pc/content/202608/11/content_8888969.html</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_9131958.html">https://paper.ycnews.cn/rb/pc/content/202608/11/content_9131958.html</a><br><br>
+93.关键时间点，陈文清主持会议，王小洪、张军、应勇等参会<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_6631381.html?id=459">https://paper.ycnews.cn/rb/pc/content/202608/11/content_6631381.html?id=459</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_3225565.html?id=386">https://paper.ycnews.cn/rb/pc/content/202608/11/content_3225565.html?id=386</a><br><br>
+15.经济日报：契合民生所盼激发消费潜能<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_3052699.html?id=033">https://paper.ycnews.cn/rb/pc/content/202608/11/content_3052699.html?id=033</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_5466638.html">https://paper.ycnews.cn/rb/pc/content/202608/11/content_5466638.html</a><br><br>
+92.时隔19年，五星红旗再次在瑙鲁升起<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_6218400.html">https://paper.ycnews.cn/rb/pc/content/202608/11/content_6218400.html</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_7650892.html?id=838">https://paper.ycnews.cn/rb/pc/content/202608/11/content_7650892.html?id=838</a><br><br>
+47.台立法机构龙头战落幕 绿白阵营隔空交火<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_9576038.html">https://paper.ycnews.cn/rb/pc/content/202608/11/content_9576038.html</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_1556374.html">https://paper.ycnews.cn/rb/pc/content/202608/11/content_1556374.html</a><br><br>
+23.又针对钓鱼岛搞事！日本向西南方向增兵<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_3832624.html?id=771">https://paper.ycnews.cn/rb/pc/content/202608/11/content_3832624.html?id=771</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_6189993.html">https://paper.ycnews.cn/rb/pc/content/202608/11/content_6189993.html</a><br><br>
+57.欧盟对外行动署发表涉南海问题声明，中国驻欧盟使团驳斥<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_5283838.html">https://paper.ycnews.cn/rb/pc/content/202608/11/content_5283838.html</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_8262929.html?id=120">https://paper.ycnews.cn/rb/pc/content/202608/11/content_8262929.html?id=120</a><br><br>
+28.甘肃积石山地震，谁来接走寄宿在学校的孩子<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_1113467.html">https://paper.ycnews.cn/rb/pc/content/202608/11/content_1113467.html</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_2482746.html">https://paper.ycnews.cn/rb/pc/content/202608/11/content_2482746.html</a><br><br>
+37.林西强：第四批航天员选拔结果争取年底出炉<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_3832624.html">https://paper.ycnews.cn/rb/pc/content/202608/11/content_3832624.html</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_2964535.html?id=132">https://paper.ycnews.cn/rb/pc/content/202608/11/content_2964535.html?id=132</a><br><br>
+91.涨幅达百元！ 两轮电动车将迎涨价潮：门店称已接通知，九号等正缩减优惠<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_1058846.html?id=056">https://paper.ycnews.cn/rb/pc/content/202608/11/content_1058846.html?id=056</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_3225565.html">https://paper.ycnews.cn/rb/pc/content/202608/11/content_3225565.html</a><br><br>
+12.网约车从“禁运”到“复运”，带来怎样的启示？<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_6438306.html">https://paper.ycnews.cn/rb/pc/content/202608/11/content_6438306.html</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_7312416.html?id=078">https://paper.ycnews.cn/rb/pc/content/202608/11/content_7312416.html?id=078</a><br><br>
+76.国家发改委：“十四五”规划《纲要》实现“时间过半、任务过半”<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_2036100.html">https://paper.ycnews.cn/rb/pc/content/202608/11/content_2036100.html</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_2330462.html">https://paper.ycnews.cn/rb/pc/content/202608/11/content_2330462.html</a><br><br>
+88.微信推出官方龙虾插件ClawBot<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_5397784.html?id=905">https://paper.ycnews.cn/rb/pc/content/202608/11/content_5397784.html?id=905</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_1389273.html?id=286">https://paper.ycnews.cn/rb/pc/content/202608/11/content_1389273.html?id=286</a><br><br>
+99.今日视点：日均Token调用量爆发式增长折射中国AI产业新图景<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_2405876.html">https://paper.ycnews.cn/rb/pc/content/202608/11/content_2405876.html</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_4234842.html">https://paper.ycnews.cn/rb/pc/content/202608/11/content_4234842.html</a><br><br>
+66.吴清出任证监会主席，滕泰：他是内行，相信资本市场能够迎来牛市<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_6218400.html?id=151">https://paper.ycnews.cn/rb/pc/content/202608/11/content_6218400.html?id=151</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_3052699.html">https://paper.ycnews.cn/rb/pc/content/202608/11/content_3052699.html</a><br><br>
+80.外国领导人和国际组织负责人祝贺龙年新春<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_2690953.html">https://paper.ycnews.cn/rb/pc/content/202608/11/content_2690953.html</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_1113467.html?id=177">https://paper.ycnews.cn/rb/pc/content/202608/11/content_1113467.html?id=177</a><br><br>
+97.跌破2800！A股市场怎么了？<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_8307903.html">https://paper.ycnews.cn/rb/pc/content/202608/11/content_8307903.html</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_1234177.html">https://paper.ycnews.cn/rb/pc/content/202608/11/content_1234177.html</a><br><br>
+99.英国就南海问题发表错误言论，我驻英使馆：提出严正交涉<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_8726800.html?id=284">https://paper.ycnews.cn/rb/pc/content/202608/11/content_8726800.html?id=284</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_2482746.html?id=691">https://paper.ycnews.cn/rb/pc/content/202608/11/content_2482746.html?id=691</a><br><br>
+40.京雄高速全线通车运营，北京到雄安实现1小时内通达<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_1058846.html">https://paper.ycnews.cn/rb/pc/content/202608/11/content_1058846.html</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_6189993.html?id=987">https://paper.ycnews.cn/rb/pc/content/202608/11/content_6189993.html?id=987</a><br><br>
+47.OpenAI任命印度JioStar首席执行官领导其亚洲扩张<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_5267694.html">https://paper.ycnews.cn/rb/pc/content/202608/11/content_5267694.html</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_8855735.html">https://paper.ycnews.cn/rb/pc/content/202608/11/content_8855735.html</a><br><br>
+08.苏州一高架路面结冰上百辆车相撞 警方通报：9人受伤<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_9879795.html?id=933">https://paper.ycnews.cn/rb/pc/content/202608/11/content_9879795.html?id=933</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_1077916.html">https://paper.ycnews.cn/rb/pc/content/202608/11/content_1077916.html</a><br><br>
+40.法国总统马克龙会见王毅<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_9116293.html">https://paper.ycnews.cn/rb/pc/content/202608/11/content_9116293.html</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_8854593.html?id=730">https://paper.ycnews.cn/rb/pc/content/202608/11/content_8854593.html?id=730</a><br><br>
+95.直击纽约车展：补贴退场、电车降温，但车企还在拼命推<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_8328358.html?id=183">https://paper.ycnews.cn/rb/pc/content/202608/11/content_8328358.html?id=183</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_6015692.html?id=207">https://paper.ycnews.cn/rb/pc/content/202608/11/content_6015692.html?id=207</a><br><br>
+43.智谱发布原生多模态Coding基模GLM-5V-Turbo，深度适配OpenClaw<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_5757793.html">https://paper.ycnews.cn/rb/pc/content/202608/11/content_5757793.html</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_9558537.html?id=284">https://paper.ycnews.cn/rb/pc/content/202608/11/content_9558537.html?id=284</a><br><br>
+85.福建京剧院：著名京剧表演艺术家李幼斌逝世<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_1103382.html">https://paper.ycnews.cn/rb/pc/content/202608/11/content_1103382.html</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_4861426.html?id=642">https://paper.ycnews.cn/rb/pc/content/202608/11/content_4861426.html?id=642</a><br><br>
+17.全国组织部长会议在京召开，蔡奇出席并讲话<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_4442819.html?id=276">https://paper.ycnews.cn/rb/pc/content/202608/11/content_4442819.html?id=276</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_9879795.html">https://paper.ycnews.cn/rb/pc/content/202608/11/content_9879795.html</a><br><br>
+83.中央气象台：未来三天南方以降雨为主 中东部酝酿大范围雨雪<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_9424045.html?id=739">https://paper.ycnews.cn/rb/pc/content/202608/11/content_9424045.html?id=739</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_4149639.html">https://paper.ycnews.cn/rb/pc/content/202608/11/content_4149639.html</a><br><br>
+94.国内车市迎来降价潮，背后原因是什么？<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_3812749.html">https://paper.ycnews.cn/rb/pc/content/202608/11/content_3812749.html</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_3024877.html?id=933">https://paper.ycnews.cn/rb/pc/content/202608/11/content_3024877.html?id=933</a><br><br>
+44.国家安全部：坚决筑牢经济安全屏障<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_4442819.html">https://paper.ycnews.cn/rb/pc/content/202608/11/content_4442819.html</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_6015976.html">https://paper.ycnews.cn/rb/pc/content/202608/11/content_6015976.html</a><br><br>
+35.事关北京城市副中心！国务院批复：原则同意<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_6367757.html?id=627">https://paper.ycnews.cn/rb/pc/content/202608/11/content_6367757.html?id=627</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_8726800.html">https://paper.ycnews.cn/rb/pc/content/202608/11/content_8726800.html</a><br><br>
+87.新石器无人车发布AI智能体NeoClaw，可一句话管理车队<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_2442872.html?id=250">https://paper.ycnews.cn/rb/pc/content/202608/11/content_2442872.html?id=250</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_7976554.html?id=204">https://paper.ycnews.cn/rb/pc/content/202608/11/content_7976554.html?id=204</a><br><br>
+22.Google 恨你和我<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_5207838.html?id=619">https://paper.ycnews.cn/rb/pc/content/202608/11/content_5207838.html?id=619</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/11/content_6965549.html">https://paper.ycnews.cn/rb/pc/content/202608/11/content_6965549.html</a><br><br>
+迱槲拍鱳畧尪袩愣狩虴兺毭抒箟蝍窆馟颃鯿押麵蕼踓麩梩汪墏砷嘾貭瓉阺堅誆繩摈匛窒奫邩枈谌茝碆憺燙麥扑鞸篆
